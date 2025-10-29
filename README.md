@@ -1,3 +1,5 @@
 ini punya nya xsat ditele
 
-t.me@xsat34
+
+@xsat34
+t.me/@xsat34
